@@ -1,0 +1,1 @@
+# Global-Cost-of-Living-Rankings-Affordability-Index
